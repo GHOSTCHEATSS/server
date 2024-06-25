@@ -1,1 +1,0 @@
-https://cdn.discordapp.com/attachments/1240348240788979796/1254365168654094356/GHOST_VNG_protected.dll?ex=66793a19&is=6677e899&hm=ef5b7cb373f59f661a315ee20ae55fb766448a20f465d74010659fce5df7baad&

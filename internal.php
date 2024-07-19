@@ -1,0 +1,1 @@
+https://cdn.discordapp.com/attachments/1240348240788979796/1263902439766229023/ghost.dll?ex=669bec5f&is=669a9adf&hm=fee3c3ae1ca669d778a5ea3a6d67bf1ee0637b58e313251ec24e468f635e541f&

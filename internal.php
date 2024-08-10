@@ -1,1 +1,0 @@
-https://cdn.discordapp.com/attachments/1267522293500739635/1268992375800336384/internal_protected.dll?ex=66ae70bf&is=66ad1f3f&hm=2d477b420884bb2805cbe5dd44fe06c76be97a09058fc99f17b8cb7623df383a&

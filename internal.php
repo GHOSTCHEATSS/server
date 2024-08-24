@@ -1,1 +1,0 @@
-https://cdn.discordapp.com/attachments/1254338924076208140/1276803256248438785/Ghost_protected.dll?ex=66cadb32&is=66c989b2&hm=5ea2426c1382381e409401d68c3a516e9a2cd83a14bbc17ac47cd3b5a24d66e5&
